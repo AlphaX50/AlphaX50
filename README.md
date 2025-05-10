@@ -19,3 +19,5 @@
 
   ## 💰 You can help me by Donating
   [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me//NaZonWaree)
+---
+![QSn1SEfOl](https://github.com/user-attachments/assets/62462fe9-5467-462e-9fcf-d5b2bd420210)
